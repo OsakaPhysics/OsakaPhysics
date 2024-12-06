@@ -5,7 +5,7 @@
 - 📫 How to reach me? EMAIL!!!!!!!!!!!!!!! im also sometimes online on IRC, check my info page! :3
 - 😄 Pronouns: I really dont care what you useee!!!!!!!! :3
 - ⚡ Fun fact: I once calculated the exact speed needed to launch a watermelon into orbit... for science! ofcourse. 🌍🍉🚀
-- Daily Fun Fact: I love all game engines equally!
+- Daily Fun Fact: WORDPRESS!!!!!!!!!!!!!!!!!!! 
 
 <!---
 OsakaPhysics/OsakaPhysics is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
